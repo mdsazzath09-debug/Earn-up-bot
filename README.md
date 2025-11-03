@@ -1,0 +1,1 @@
+Earn up bot
